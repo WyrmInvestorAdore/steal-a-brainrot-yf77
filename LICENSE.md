@@ -1,4 +1,4 @@
-#  
+#  Experience steal a brainrot like never before with no-ban steal a brainrot Scripts, the #1 Script. Includes undetectable and silent aim for
 
 
 
